@@ -1,2 +1,2 @@
 # hello-world
-share ressources
+share ressources... and enjoy !!
